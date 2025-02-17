@@ -2,11 +2,11 @@
 
 *Dragon* is a psychological thriller that has taken the world by storm since its release. With its intriguing narrative, unsettling atmosphere, and a memorable antagonist, the film has garnered both critical acclaim and a devoted fanbase. This article explores the significance of *Dragon*, its themes, the psychology behind its characters, and why it has become a significant piece of modern psychological horror.
 
-<h3><a href="TWITTER222">➤ ►🌍📺📱👉 Dragon (2025) F𝚞ll Mo𝚟ie</a></h3>
+<h3><a href="https://t.co/Kvx6jCJaMo">➤ ►🌍📺📱👉 Dragon (2025) F𝚞ll Mo𝚟ie</a></h3>
 
-<h3><a href="TWITTER222">➤ ►🌍📺📱👉 Dragon (2025) F𝚞ll Mo𝚟ie</a></h3>
+<h3><a href="https://t.co/Kvx6jCJaMo">➤ ►🌍📺📱👉 Dragon (2025) F𝚞ll Mo𝚟ie</a></h3>
 
-<h3><a href="TWITTER222">➤ ►🌍📺📱👉 W𝚊tch Dragon (2025) F𝚞ll Mo𝚟ie Downl𝚘ad</a></h3>
+<h3><a href="https://t.co/Kvx6jCJaMo">➤ ►🌍📺📱👉 W𝚊tch Dragon (2025) F𝚞ll Mo𝚟ie Downl𝚘ad</a></h3>
 
 **Plot Overview**
 
